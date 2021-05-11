@@ -1,2 +1,6 @@
-# Repo1
-My First Repository
+Abdulqhowiy
+Abubakar
+Adekunle
+Hajia Ruqayah
+Miss Helen
+AbdulHalim
